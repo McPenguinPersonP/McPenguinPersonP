@@ -1,2 +1,1 @@
-- Hi, I’m @McPenguinPersonP
 - Fun fact: PENGUINS EXIST!!
